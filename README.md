@@ -1,1 +1,3 @@
 # githum2
+
+Muttahida Qaumi Movement (Pakistan)[9] (Urdu: متحدہ قومی موومنٹ (پاکستان) Muttahidah Qọ̄mī Mūvmaṅṫ Pākistān abbr. MQM-P) is a social liberal, Muhajir nationalist, and secularist political party.[10][3] The leader of the party is Khalid Maqbool Siddiqui.[9] The party's symbol is the kite. It is mostly active in Karachi where the majority of Muhajirs currently reside.[11] The party aims to represent the Human rights of Muhajirs in Pakistan through peaceful and democratic struggle.[12] The Party is a splinter faction of Muttahida Qaumi Movement – London.[6]
